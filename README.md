@@ -1,0 +1,4 @@
+Iets tijdelijks totdat de nieuwe website live is.
+
+Verhaaltjes zijn met de datum genummerd. Uruguay wordt apart beschreven van Argentinië/Chili.
+Klik een verhaaltje aan en in de preview is het verhaal op een normale manier te lezen.

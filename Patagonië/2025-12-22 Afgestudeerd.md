@@ -23,7 +23,7 @@ Het plekje direct bij de ingang was al bezet door een ander gezelschap.
 
 ![](https://live.staticflickr.com/65535/55001375295_0faf65ed0c.jpg)
 
-Wat gaat de dame op de voorgrond met die spuitbus doen? Aha, _vieren_ dus, maar dat toch wel een understatement.
+Wat gaat de dame op de voorgrond met die spuitbus doen? Aha, _vieren_ dus, maar dat is toch wel een understatement.
 
 ![](https://live.staticflickr.com/65535/55001074116_3383009492.jpg)
 

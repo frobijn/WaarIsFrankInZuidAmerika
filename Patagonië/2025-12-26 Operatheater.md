@@ -39,4 +39,8 @@ hoe goed het geluid nog is op deze afstand van het orkest, al klinkt har geluid 
  de staanplaatsen evenveel kosten als een cappucino of een paar empanadas uit een winkel (euro of 5), de stoelen op 
  deze hoogte voor 2 tot 3 keer zoveel. De beste plaatsen gaan voor meer dan honderd euro weg. De prijsdiversiteit
  helpt vast bij het aantrekken van een heel divers publiek.
+ 
+ Het theater heeft elders in de stad een enorme ruimte om aan decors en rekwisieten te werken en ze op te slaan.
+ Je kunt dat bezoeken.  Van een aantal recente producties staan ze opgesteld. De bezoeker wordt met klem verzocht alles
+ aan te raken, om te voelen waar het van gemaakt is.
 

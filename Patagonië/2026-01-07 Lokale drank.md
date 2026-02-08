@@ -4,7 +4,7 @@ We zijn voor een paar dagen de grens met Chili overgestoken om hetzelfde gletsch
 
 Dat begon al in de enige (toeristische) winkel bij de grens waar ik toevallig een oude bekende tegenkwam: pisco sour!
 
-~[](https://live.staticflickr.com/65535/55084896759_5a2f3d7033.jpg)
+![](https://live.staticflickr.com/65535/55084896759_5a2f3d7033.jpg)
 
 Mijn gedachten dwaalden direct af naar mijn eerste bezoek aan Chili, waar mevrouw ESO guesthouse aan het eind van de middag steevast pisco sour serveerde. Dat was ik al bijna vergeten! We overnachten in huisjes met in de buurt maar één restaurant dat gelukkig ook pisco sour op de menukaart heeft staan. Genoeg om de herinnering aan 37 jaar geleden nieuw leven in te blazen.
 

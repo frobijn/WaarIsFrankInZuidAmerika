@@ -4,7 +4,7 @@ Het programma in Ushuaia bestond uit een boottocht op de eerste dag en een bezoe
 
 ![](https://live.staticflickr.com/65535/55055790232_cedf3a4133.jpg)
 
-En een vogel die op een pinguïn lijkt maar wel kan vliegen:
+En een vogel die op een pinguïn lijkt maar wel kan vliegen, de magelhaenaalscholver:
 
 ![](https://live.staticflickr.com/65535/55057052410_a2926e3e45.jpg)
 

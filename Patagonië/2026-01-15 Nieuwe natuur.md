@@ -6,7 +6,7 @@ Dat heeft zo ziojn voordelen. De dieren zijn totaal niet schuw en willen best ui
 
 ![](https://live.staticflickr.com/65535/55052771201_588ccca441_c.jpg)
 
-Sommige snappen zo goed dat er in de buurt van mensen allerlei eten te halen is, dat ze zich niet laten afschrikken door een namaak-soortgenoot en met een bezem de winkels uitgeveegd moeten worden.
+Sommige snappen zo goed dat er in de buurt van mensen allerlei eten te halen is, dat ze zich niet laten afschrikken door een namaak-soortgenoot en met een bezem de winkel uitgeveegd moeten worden.
 
 ![](https://live.staticflickr.com/65535/55051901857_8130f95150_c.jpg)
 

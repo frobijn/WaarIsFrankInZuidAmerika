@@ -1,0 +1,17 @@
+# Remove the line below if you want to inherit .editorconfig settings from higher directories
+root = true
+
+#-----------------------------------------------------
+# All file types
+#-----------------------------------------------------
+[*]
+# 4 space indentation
+indent_style = space
+indent_size = 4
+tab_width = 4
+
+# Visual Studio spell checker
+spelling_languages = nl-nl
+spelling_checkable_types = strings,identifiers,comments
+spelling_error_severity = information
+spelling_exclusion_path=spelling_exclusion.dic

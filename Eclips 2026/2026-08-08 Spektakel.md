@@ -1,4 +1,4 @@
-# Spectakel
+# Spektakel
 
 De dag begint met het verkennen van Limoges. De etappe van vandaag lijkt niet zo lang, dus er is tijd genoeg. 
 
@@ -6,7 +6,7 @@ De dag begint met het verkennen van Limoges. De etappe van vandaag lijkt niet zo
 
 Leuke foto, maar van de mooiste taferelen van deze dag heb ik geen foto's.
 
-De twee andere langere stops zijn de grot van Peche-Merles en een dorpje aan de Franse zijde van de Pyreneën.
+De twee andere langere stops zijn de grot van Peche-Merles en een dorpje aan de Franse zijde van de Pyreneeën.
 
 Eerst de grot, bekend om de prehistorische schilderingen. Prachtig! Helaas, fotograferen is strict verboden.
 

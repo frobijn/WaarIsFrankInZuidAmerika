@@ -1,6 +1,6 @@
 # San Lorenzo
 
-Het idee was om tussen Andorra en Pamplona, de uitvalsbasis voor de eclipsdag, nog een tussenstop te plannen in de buurt van de Pyreneën. Het blijkt dat er in deze tijd van het jaar veel steden en dorpen feesten hebben die draaien om een heilige of die op een andere manier gerelateerd zijn aan de (katholieke) kerk. Zo ook Huesca, waar vandaag het hoogtepunt van de San Lorenzo feesten is, en dat daarom van benenstrekplaats tot hoofdbestemming promoveerde.
+Het idee was om tussen Andorra en Pamplona, de uitvalsbasis voor de eclipsdag, nog een tussenstop te plannen in de buurt van de Pyreneeën. Het blijkt dat er in deze tijd van het jaar veel steden en dorpen feesten hebben die draaien om een heilige of die op een andere manier gerelateerd zijn aan de (katholieke) kerk. Zo ook Huesca, waar vandaag het hoogtepunt van de San Lorenzo feesten is, en dat daarom van benenstrekplaats tot hoofdbestemming promoveerde.
 
 ![](ECL_0775_edit.jpg)
 

@@ -1,6 +1,6 @@
 # Wandelen op zondag
 
-De tweede reden om voor Andorra te kiezen als etappeplaats is dat het midden in de Pyreneën ligt, dus het zou toch gemakkelijk moeten zijn om op zondag een stukje in de bergen te gaan wandelen. Je hoeft niet ver te gaan, de bergen liggen naast de stad en de dorpen. En het ziet er schitterend uit.
+De tweede reden om voor Andorra te kiezen als etappeplaats is dat het midden in de Pyreneeën ligt, dus het zou toch gemakkelijk moeten zijn om op zondag een stukje in de bergen te gaan wandelen. Je hoeft niet ver te gaan, de bergen liggen naast de stad en de dorpen. En het ziet er schitterend uit.
 
 ![](ECL_0737.jpg)
 
